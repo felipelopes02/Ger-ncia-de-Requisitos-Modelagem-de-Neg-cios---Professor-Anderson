@@ -1,0 +1,1 @@
+# Ger-ncia-de-Requisitos-Modelagem-de-Neg-cios---Professor-Anderson
